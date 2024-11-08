@@ -1,3 +1,3 @@
 # DSC180A-Methodology-4
 Methodology Assignment 4
-Anastasiya Markova
+Christopher Scott Beltran "awesomesauce" Lum
